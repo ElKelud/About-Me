@@ -10,7 +10,7 @@ Tentu, Cloud. Aku tuliskan isi tulisannya di sini dan aku rapikan sedikit supaya
 
 1. Personal Details
 
-My name is Awan Naung Persada Daniel, my nickname is Awan, I lived with my family, and my parents and two brothers too. I lived in Pasuruan and today I was 15 years old, and my birth date is 22 August 2010.
+My name is Awan Naung Persada Daniel, my nickname is Awan, I lived with my family, and my parents and two brothers too. I lived in Mojokerto and today I was 15 years old, and my birth date is 22 August 2010.
 
 2. Strength and Weaknesses
 
@@ -22,7 +22,7 @@ I was interested at calming things that can make me forget of my problem tempora
 
 4. Qualifications
 
-I started my educational journey at the TK Agha Wacana and graduated. I studied from 2014 and graduate at 2016, then, I continued to SDN ... belonging at the year 2016 before graduated in 2022. After that, I went to study in SMPN 1 Puri at 2022 until 2025. Lastly, I studied at SMKN 1 Dlanggu until now.
+I started my educational journey at the TK Aghia Wacana and graduated. I studied from 2014 and graduate at 2016, then, I continued to SDN Kebonagung at the year 2016 before graduated in 2022. After that, I went to study in SMPN 1 Puri at 2022 until 2025. Lastly, I studied at SMKN 1 Dlanggu until this moment.
 
 5. Past Experiences
 
