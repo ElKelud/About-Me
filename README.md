@@ -6,8 +6,6 @@
 
 Here are some ideas to get you started:-->
 
-Tentu, Cloud. Aku tuliskan isi tulisannya di sini dan aku rapikan sedikit supaya lebih mudah dibaca:
-
 1. Personal Details
 
 My name is Awan Naung Persada Daniel, my nickname is Awan, I lived with my family, and my parents and two brothers too. I lived in Mojokerto and today I was 15 years old, and my birth date is 22 August 2010.
